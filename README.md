@@ -1,2 +1,0 @@
-# balondunyasicengelkoy
-ucuzlugun tek adresi
